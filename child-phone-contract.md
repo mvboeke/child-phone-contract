@@ -1,6 +1,3 @@
-
-Dear Son,
-
 Happy birthday buddy! You’re now the proud owner of your first mobile phone. You’ve proven you can use your agency to make good decisions, and we’re excited to see how technology will enhance your decision making.
 Below are rules and guidelines you'll need to follow now thaty you have a phone. Failure to follow these rules will result in your phone being confiscated.
 
