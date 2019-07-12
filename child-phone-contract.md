@@ -8,13 +8,11 @@ Below are rules and guidelines you'll need to follow now thaty you have a phone.
 
 - This phone is primarily for your safety. Be responsible for knowing how to call for help and when.
 - Keep your phone on you and keep it charged each day.
-- We will always know your password and will check the browser history and messages from time to time.
 - Always answer and/or return messages or phone calls from Mom and Dad.
 - Until you’re 18 and living on your own, all decisions about technology and ownership of devices will ultimately be at the discretion of Mom and Dad. We can take away your privileges at any time. We’ll know your passwords. We may check your device or browsing history from time to time. We’ll learn together and counsel with you on decisions. But what we say is final.
 
 ## Using this phone
 
-- Be polite. Never hang up on someone you know.
 - Treat it carefully and respectfully. If you break it, you are responsible for its repair.
 - No phones at times when it’s not acceptable; during mealtimes, at the cinema or at church. Try to remember there are other ways to entertain yourself when you are waiting for someone or something.
 - Be in the moment, not in your phone. For example: don't look at your phone and walk at the same time. You'll walk into a lamp-post or some dog poop. It happens.
